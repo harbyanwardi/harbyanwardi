@@ -1,5 +1,5 @@
 # 💫 About Me:
-I currently work as a backend developer at a fintech startup in Indonesia
+I currently work as a Digitalization Lead at a Manufacture of Astra Otoparts Group in Indonesia
 
 
 ## 🌐 Socials:
